@@ -20,5 +20,5 @@ Soy una programadora apasionada y comprometida con un enfoque tranquilo y amigab
 
 📧 **Email:** [ingridaybar841@gmail.com](ingridaybar@gmail.com)
 
-🔗 **LinkedIn:** [https://www.linkedin.com/in/ingrid-karen-ba8941266/](https://www.linkedin.com/in/ingrid-karen-ba8941266/)
+🔗 **LinkedIn:** [https://www.linkedin.com/in/ingrid-karen-ba8941266/](https://www.linkedin.com/in/ingrid-karen-aybar-camacho-ba8941266/)
 
